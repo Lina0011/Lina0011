@@ -1,5 +1,5 @@
 ### Hello everyone (; 👋
 
--always remember ..
+-remember ..
 
 -Goals were set to be achieved !
